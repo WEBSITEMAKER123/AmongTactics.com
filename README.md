@@ -1,1 +1,1 @@
-# https://www.AmongTactics.com/
+# AmongTactics.com
